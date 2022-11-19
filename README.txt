@@ -15,3 +15,4 @@ Tak samo aktualna plansza jest za krótka, powinna piąc się dalej ku górze, l
 Bardzo mi zależy na zaliczeniu tego przedmiotu, w razie wątpliwości bądź uwag zostaję do dyspozycji na Teams.
 Pozdrawiam,
 Kamil Fik
+EDIT:TEST
